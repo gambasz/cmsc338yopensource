@@ -1,2 +1,2 @@
 # cmsc338yopensource
-Hi
+Hi I am terribla at spelling!
